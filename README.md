@@ -1,0 +1,1 @@
+# School-Web-UI![screencapture-file-C-Users-Harsh-OneDrive-Desktop-School-Web-UI-index-html-2022-12-03-15_35_06](https://user-images.githubusercontent.com/111748257/205435594-84b20d32-e987-4206-987b-b58202df536d.png)
